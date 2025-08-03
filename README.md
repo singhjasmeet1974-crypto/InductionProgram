@@ -1,7 +1,7 @@
 # InductionProgram Day 1 [img](https://photos.app.goo.gl/WStUtskhR9jKans99)
 Jasmeet Singh IT
 - Lists
-   * visit at gurudwara sahib[img](https://photos.app.goo.gl/UkDSSrXGjNqJdWAT8)
+   * visit in gurudwara sahib for bleesings of God at 8:30amand leaves at 9:30am[img](https://photos.app.goo.gl/UkDSSrXGjNqJdWAT8)
    * Snacking for Half an hour
 - Visit Auditorium at 10:00am [img](https://photos.app.goo.gl/Fvrp82Fu9a5svifj8)
    * Senior's speech about 70 glorious years of GNDEC And its History 
