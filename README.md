@@ -1,5 +1,7 @@
-# InductionProgram Day 1 [img](https://photos.app.goo.gl/WStUtskhR9jKans99)
-Jasmeet Singh IT
+Jasmeet Singh IT 
+# Induction Program [img](https://photos.app.goo.gl/WStUtskhR9jKans99)
+
+## Day1
 - Lists
    * visit in gurudwara sahib for bleesings of God at 8:30amand leaves at 9:30am[img](https://photos.app.goo.gl/UkDSSrXGjNqJdWAT8)
    * Snacking for Half an hour
@@ -13,7 +15,7 @@ Jasmeet Singh IT
    * At last all students visits their training rooms
    * Ends at 3:30 pm
 
-# Day2
+## Day2
 
 1.- English test ( 9:30 to 10:00 am )
   * we kick started our second our second day with an english test which had 5 questions the first and second question were unseen passage. third question was a letter and fourth was a email and fifth was grammatical portion containing 10 sub parts the test was fairly easy.
