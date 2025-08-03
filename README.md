@@ -1,7 +1,7 @@
 # InductionProgram Day 1
 Jasmeet Singh IT
 - Lists
-
+   * [img](https://photos.app.goo.gl/kP4u8k4L3BNCcAWu8)
    * visit at gurudwara sahib
    * Snacking for Half an hour
 - Visit Auditorium at 10:00am
@@ -12,4 +12,6 @@ Jasmeet Singh IT
    * Break 
    * speech given by 1991 passed out alumini
    * At last all students visits their training rooms
+   * [img](https://photos.app.goo.gl/Fvrp82Fu9a5svifj8)
+   * [img](https://photos.app.goo.gl/UkDSSrXGjNqJdWAT8)
    * Ends at 3:30 pm
