@@ -36,4 +36,5 @@ Jasmeet Singh IT
    ### End of Day3
 
    # Day4
-   
+1.English lecture: (9:30 to 10:30 )
+ * the first lecture of our fourth day was english communication taken by professor Aastik Sharma. In the beginning of lecture he given us four questions 3 verbal question in which we have to introduce ourselves , why we choose this college and branch and last question is tell about your weakness and strengths. he given us ten minutes to prepare these questions then after ten minutes he picked some students randomly asked them about answers and the fourth questions was a letter then after the test he explained to us the importance of body language and communication skills as a person who has knowledge but doesn't know how to explain to others then his knowledge is waste.
