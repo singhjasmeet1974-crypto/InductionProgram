@@ -13,7 +13,7 @@ Jasmeet Singh IT
    * Break 
    * speech given by 1991 passed out alumini
    * At last all students visits their training rooms
-   * Ends at 3:30 pm
+### End of Day1
 
 ## Day2
 
